@@ -14,4 +14,5 @@ Ein Zitat:
 > Mittel sind vorhanden.
 
 ![Die Brüder Kipp © kinokalender.com](https://kinokalender.com/_media/filmbilder_gross/594/wir-koennen-auch-anders-5.jpg)
+
 Die Brüder Kipp © [kinokalender.com](https://kinokalender.com/)
