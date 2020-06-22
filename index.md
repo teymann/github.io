@@ -7,3 +7,9 @@ In der Komödie „Wir können auch anders …“ aus dem Jahr 1993 von Detlev B
 * leichtgläubig
 * unerfahren
 * tollpatschig
+
+Ein Zitat:
+
+> Geld spielt keine Rolle,
+> Mittel sind vorhanden.
+
